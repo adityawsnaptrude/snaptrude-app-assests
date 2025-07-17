@@ -1,0 +1,1 @@
+# snaptrude-app-assests
